@@ -1,1 +1,1 @@
-# Impact-of-smoking-on-women-in-labour
+# This study looks at impact on women who smoke while they are pregnant. We all know smoking and drinking furing pregnancy is bad, but i wanted to look the after affect of this affect. This shows the baby defects created due to this affect and how the mothers are affected after.
